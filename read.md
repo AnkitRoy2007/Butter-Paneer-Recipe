@@ -1,0 +1,1 @@
+A rich tomato and cashew based gravy with butter fried paneer chunks. If you are looking for a thick, delicious full of cream gravy recipe of Paneer, this is just the perfect dish for you. A recipe that would give you the exact sense of a restaurant style Paneer Butter Masala dish!
